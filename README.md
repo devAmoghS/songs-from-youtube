@@ -18,3 +18,7 @@ Owl City - Fireflies
 AronChupa - I'm an Albatraoz | OFFICIAL VIDEO
 Fast Five - Don Omar Ft. Lucenzo - Danza Kuduro.mp4
 Eminem - Till I Collapse [HD]
+Remember The Name (Official Video) - Fort Minor
+Wiz Khalifa - Black And Yellow [G-Mix] ft. Snoop Dogg, Juicy J & T-Pain
+DJ Khalil, Denzel Curry, YBN Cordae, Swavay, Trevor Rich - Elevate(Spider-Man Into the Spider-Verse)
+What's Up Danger(Movie Version) - Spider-Man Into the Spider-Verse Soundtrack
